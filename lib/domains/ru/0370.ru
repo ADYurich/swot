@@ -1,0 +1,2 @@
+Университет Санталь
+Santal University
